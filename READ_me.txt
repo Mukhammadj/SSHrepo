@@ -3,4 +3,10 @@ JFabjk nkajdn ian uiasgn uang oid  na ua iaj jgr  ij iojo  qmori jrqi g qmr qo i
 dsfasdf
 dfafs
 dsfdasfasdf
-gfdarrefda
+gfdarrefdaffd
+dsfsd dsf ds f
+ads
+f sa
+fddsfa asdgafg th a sa bjkjnk n jkb namanga an an anfadsn maukhammadjon 
+jknad kj ab l alisher maktab adkjfba kjdf
+af kjanfj  bola alkdg  lola jk kjgs
